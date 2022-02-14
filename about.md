@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+Tamara Nadjsombati is a second year biochemisrty major at Cal Poly. She is interested in pursuing graduate research in the future. 
 
 ### More Information
 
