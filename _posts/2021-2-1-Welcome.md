@@ -2,4 +2,4 @@
 layout: post
 title: Welcome!
 ---
-You can change the title above if you want to and then write your content.  
+Tamara Nadjsombati is an undergraduate biochemistry student at California Polytechnic State University San Luis Obispo. 
