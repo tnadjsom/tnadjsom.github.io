@@ -4,5 +4,5 @@ title: Experience
 permalink: /experience/
 ---
 
-1. A great publication.
-2. Another great publication.
+1. Intern at Pacific PharmaScience 
+2. General Chemistry Learning Assistant 
