@@ -8,7 +8,7 @@ Tamara Nadjsombati is a second year biochemisrty major at California Polytechnic
 
 ### More Information
 
-Tamara grew up in Southern California and enjoys to spend time at the beach. In addition, she is passionate about environmental conservation particularly ocean protection. Tamara's other interests include skiing, hiking and running. She also enjoys painting and embroidery. 
+Apart from chemistry, Tamara also enjoys spending time at the beach, hiking and skiing. She is passionate about environmental conservation and ocean protection. Some of her other interests include painting and embroidery. 
 
 ### Contact me
 
